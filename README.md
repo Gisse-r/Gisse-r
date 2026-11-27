@@ -109,8 +109,7 @@ Creo que el conocimiento también debe convertirse en una oportunidad para ayuda
 
 ## 🖤 Un poquito de mi esencia
 
-- **Colores favoritos:** Negro, morado, vinotinto y dorado.
-- **Estilo:** Elegante, creativo, brillante y con un toque baddie.
+- **Colores favoritos:** Negro, morado y vinotinto.
 - **Personalidad:** Curiosa, risueña, reservada, creativa y ambiciosa.
 - **Lo que me inspira:** Aprender, crecer, vivir nuevas experiencias y cumplir mis metas.
 - **Mi filosofía:** Los pequeños logros también construyen grandes sueños.
